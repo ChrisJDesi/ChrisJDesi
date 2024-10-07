@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ChrisJDesi
+- 👀 I’m interested in Film, music, history and buisness. 
+- 🌱 I’m currently learning Buisness Intelegence Analytics 
+- 💞️ I’m looking to collaborate on any sort of data driven analysis of an entertainment company. 
+- 📫 How to reach me: Cdesi88@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I can play guitar and write music.
